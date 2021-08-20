@@ -1,1 +1,1 @@
-# c37images
+# The monster can be defeated!!
